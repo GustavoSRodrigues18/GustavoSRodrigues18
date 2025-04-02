@@ -9,6 +9,6 @@ Me chamo Gustavo Rodrigues
 
 gugarodrigues1807@gmail.com
 
-@gugasrodrigues_
+@gus_rodrigues_71
 
 ![](https://media1.tenor.com/m/iRkL6OMGhU4AAAAC/alarm.gif)
